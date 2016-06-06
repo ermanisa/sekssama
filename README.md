@@ -1,0 +1,2 @@
+# sekssama
+Seksama kita bisa
